@@ -1,1 +1,1 @@
-# Independent-project
+# Akan-names
